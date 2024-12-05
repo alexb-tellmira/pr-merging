@@ -1,1 +1,1 @@
-There once was a coder calle Schmidt
+There once was a coder called Schmidt
